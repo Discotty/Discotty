@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Discotty
+- 👀 I’m interested in Learning How to code and £d printing I have a voron 
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on Beginner projects/help?
+- 📫 How to reach me Snapchat @Discotty 
